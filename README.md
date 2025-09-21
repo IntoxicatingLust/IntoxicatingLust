@@ -29,9 +29,6 @@ INTP
 ⚡ Interested in coding, games, and creative projects  
 🌙 Just making things I enjoy — in code & on canvas lmao  
 
-## 📊 Stats from the Abyss  
-![visitors](https://visitor-badge.glitch.me/badge?page_id=YOURUSERNAME.YOURUSERNAME&left_color=black&right_color=purple) 
-
 ![Image](https://github.com/user-attachments/assets/3bd229fc-ce04-4273-a2a4-68db3c04a289)
 
 </div>
