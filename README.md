@@ -30,8 +30,7 @@ INTP
 🌙 Just making things I enjoy — in code & on canvas lmao  
 
 ## 📊 Stats from the Abyss  
-![Shann's GitHub stats](https://github-readme-stats.vercel.app/api?username=YOURUSERNAME&show_icons=true&theme=tokyonight)  
-<img src="https://media.tenor.com/yourchosengif.gif" alt="dark forest" width="250"/>
+![visitors](https://visitor-badge.glitch.me/badge?page_id=YOURUSERNAME.YOURUSERNAME&left_color=black&right_color=purple) 
 
 ![Image](https://github.com/user-attachments/assets/3bd229fc-ce04-4273-a2a4-68db3c04a289)
 
