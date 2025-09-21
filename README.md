@@ -20,7 +20,6 @@ Male
 Bisexual + aroace
 INTP
 
----
 ## IF IM IN PT
 *you may find me in libray,*
 *main map in crk area,,*
