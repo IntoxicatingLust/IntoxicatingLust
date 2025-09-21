@@ -7,6 +7,8 @@
 
 *Just a place where I put things, maybe.*  
 
+“Lust, desire, and code—each written to be consumed.”
+
 &nbsp;  
 
 ✔️ int is fine aight? (unless dni/dniuf in pt)  
@@ -15,6 +17,7 @@
 &nbsp;  
 
 🕒 20 → 21 soon  
+nov. 2 ok?
 he/him | student dev & artist... maybe?  
 Male
 Bisexual + aroace
