@@ -1,6 +1,4 @@
 <div align="center">
-
-![Image](https://github.com/user-attachments/assets/4b071971-ef24-4680-a132-a68eec907af6)
  
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/98acf5b5-be73-4632-b81e-39e15c5244fd" />
 
