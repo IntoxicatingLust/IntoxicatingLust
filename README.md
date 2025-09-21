@@ -9,10 +9,8 @@
 
 “Lust, desire, and code—each written to be consumed.”
 &nbsp;  
-
 ✔️ int is fine aight? (unless dni/dniuf in pt)  
 🚫 dnc: unless we’re friends  
-
 &nbsp;  
 
 🕒 20 → 21 soon  
@@ -24,7 +22,8 @@ INTP
 
 ---
 ## IF IM IN PT
-you may find me in libray, main map in crk area,,
+*you may find me in libray,*
+*main map in crk area,,*
 
 ---
 💻 Student exploring coding and software development  
