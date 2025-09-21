@@ -8,7 +8,6 @@
 *Just a place where I put things, maybe.*  
 
 “Lust, desire, and code—each written to be consumed.”
-
 &nbsp;  
 
 ✔️ int is fine aight? (unless dni/dniuf in pt)  
@@ -22,8 +21,12 @@ he/him | student dev & artist... maybe?
 Male
 Bisexual + aroace
 INTP
----
 
+---
+## IF IM IN PT
+you may find me in libray, main map in crk area,,
+
+---
 💻 Student exploring coding and software development  
 🚀 Currently working on school projects + personal experiments  
 ⚡ Interested in coding, games, and creative projects  
