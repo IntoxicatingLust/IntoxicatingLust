@@ -13,7 +13,7 @@
 🚫 dnc: unless we’re friends  
 &nbsp;  
 
-🕒 20 → 21 soon<br>
+🕒 20 → 21 soon <br>
 nov. 2 ok?
 he/him | student dev & artist... maybe?  
 Male
@@ -21,7 +21,7 @@ Bisexual + aroace<br>
 INTP
 
 ## IF IM IN PT
-*you may find me in libray, bakery*<br>
+*you may find me in libray, bakery* <br>
 *main map; in crk area, ALNSTG*
 
 ---
