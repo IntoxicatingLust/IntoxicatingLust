@@ -13,7 +13,7 @@
 🚫 dnc: unless we’re friends  
 &nbsp;  
 
-🕒 20 → 21 soon  
+🕒 20 → 21 soon<br>
 nov. 2 ok?
 he/him | student dev & artist... maybe?  
 Male
