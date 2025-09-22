@@ -17,7 +17,7 @@
 nov. 2 ok?
 he/him | student dev & artist... maybe?  
 Male
-Bisexual + aroace
+Bisexual + aroace<br>
 INTP
 
 ## IF IM IN PT
