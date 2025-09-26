@@ -1,7 +1,7 @@
 <div align="center">
  
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/98acf5b5-be73-4632-b81e-39e15c5244fd" />
-
+<br>
 ![HTML](https://img.shields.io/badge/-HTML-EB5E28?style=for-the-badge&logo=html5&logoColor=white)
 ![CSS](https://img.shields.io/badge/-CSS-0A192F?style=for-the-badge&logo=css3&logoColor=blue)
 ![Python](https://img.shields.io/badge/-Python-222222?style=for-the-badge&logo=python&logoColor=yellow) 
