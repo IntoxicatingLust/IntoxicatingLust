@@ -5,7 +5,7 @@
 ![HTML](https://img.shields.io/badge/-HTML-EB5E28?style=for-the-badge&logo=html5&logoColor=white)
 ![CSS](https://img.shields.io/badge/-CSS-0A192F?style=for-the-badge&logo=css3&logoColor=blue)
 ![Python](https://img.shields.io/badge/-Python-222222?style=for-the-badge&logo=python&logoColor=yellow) 
-
+<br>
 # Shann. 
 
 *Just a place where I put things, maybe.*  
