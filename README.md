@@ -40,8 +40,7 @@ INTP
 ⚡ Interested in coding, games, and creative projects  
 🌙 Just making things I enjoy — in code & on canvas lmao  
 
-![Image](https://github.com/user-attachments/assets/3bd229fc-ce04-4273-a2a4-68db3c04a289)
-
+<img width="652" height="652" alt="Image" src="https://github.com/user-attachments/assets/92ca7eb3-b518-455c-97ec-2c265f3f2311" />
 </div>
 
 
