@@ -1,13 +1,13 @@
-<div align="center">
- 
-<img width="652" height="652" alt="Image" src="https://github.com/user-attachments/assets/9e3f777b-8cb1-499b-88b6-fb3c6d4f6765" />
-
-<br>
-
+<div align="left"
 ![HTML](https://img.shields.io/badge/-HTML-EB5E28?style=for-the-badge&logo=html5&logoColor=white)
 ![CSS](https://img.shields.io/badge/-CSS-0A192F?style=for-the-badge&logo=css3&logoColor=blue)
 ![Python](https://img.shields.io/badge/-Python-222222?style=for-the-badge&logo=python&logoColor=yellow) 
-<br>
+</div>
+
+<div align="center">
+ 
+<img width="652" height="652" alt="Image" src="https://github.com/user-attachments/assets/9e3f777b-8cb1-499b-88b6-fb3c6d4f6765" /> 
+
 # Shann. 
 
 *Just a place where I put things, maybe.*  
