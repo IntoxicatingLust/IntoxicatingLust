@@ -9,6 +9,8 @@
 </div>
 
 <div align="center">
+
+![Profile views](https://komarev.com/ghpvc/?username=IntoxicatingLust&color=red&style=flat-square)
  
 <img width="652" height="652" alt="Image" src="https://github.com/user-attachments/assets/9e3f777b-8cb1-499b-88b6-fb3c6d4f6765" /> 
 
