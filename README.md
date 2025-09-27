@@ -14,7 +14,6 @@
 
 # Shann.
 *Just a place where I put things, maybe.*  
-![snake gif](https://github.com/IntoxicatingLust/IntoxicatingLust/blob/output/github-contribution-grid-snake.svg)
 
 “Lust, desire, and code—each written to be consumed.”
 &nbsp;  
