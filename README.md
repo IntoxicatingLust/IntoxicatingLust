@@ -1,7 +1,9 @@
 <div align="left"
  
 ![HTML](https://img.shields.io/badge/-HTML-EB5E28?style=for-the-badge&logo=html5&logoColor=white)
+<br>
 ![CSS](https://img.shields.io/badge/-CSS-0A192F?style=for-the-badge&logo=css3&logoColor=blue)
+<br>
 ![Python](https://img.shields.io/badge/-Python-222222?style=for-the-badge&logo=python&logoColor=yellow) 
  
 </div>
