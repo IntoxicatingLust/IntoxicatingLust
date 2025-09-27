@@ -1,6 +1,8 @@
-<div align="left"
+<div align="right"
  
 ![HTML](https://img.shields.io/badge/-HTML-EB5E28?style=for-the-badge&logo=html5&logoColor=white)
+
+ ![GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=IntoxicatingLust&theme=tokyonight&hide_border=true)
  
 </div>
 
