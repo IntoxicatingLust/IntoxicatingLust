@@ -5,9 +5,9 @@
 
 <div align="center">
 
--# supp, welcome to my github, nice to meet you, I guess so.. I'm filipino but I prefer speaking in english, because why not?
+#- supp, welcome to my github, nice to meet you, I guess so.. I'm filipino but I prefer speaking in english, because why not?
 
-### INTRODUCTION
+# INTRODUCTION
 
 🕒 20 → 21 soon
 <br>
