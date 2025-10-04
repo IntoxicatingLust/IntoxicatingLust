@@ -22,6 +22,10 @@ INTP
 </div>
 
 <div align="Left">
+
+# Fandoms where i am currently in;
+> Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Forsaken ?? maybe.
+
  
 # OCS
 
