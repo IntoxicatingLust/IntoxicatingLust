@@ -1,10 +1,9 @@
+![Profile views](https://komarev.com/ghpvc/?username=IntoxicatingLust&color=red&style=flat-square) <br> ![visitors](https://visitor-badge.laobi.icu/badge?page_id=IntoxicatingLust.IntoxicatingLust&left_color=red&right_color=black)
 <div align="left">
  
 ![Image](https://github.com/user-attachments/assets/6e8969fb-48e7-4d83-bdd1-5cce37f6e7c6)
 
 <div align="center">
-
-![Profile views](https://komarev.com/ghpvc/?username=IntoxicatingLust&color=red&style=flat-square) <br> ![visitors](https://visitor-badge.laobi.icu/badge?page_id=IntoxicatingLust.IntoxicatingLust&left_color=red&right_color=black)
  
 <img width="652" height="652" alt="Image" src="https://github.com/user-attachments/assets/9e3f777b-8cb1-499b-88b6-fb3c6d4f6765" /> 
 
