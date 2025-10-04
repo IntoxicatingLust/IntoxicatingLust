@@ -1,11 +1,5 @@
-<div align="right"
- 
-![HTML](https://img.shields.io/badge/-HTML-EB5E28?style=for-the-badge&logo=html5&logoColor=white)
-
- ![GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=IntoxicatingLust&theme=tokyonight&hide_border=true)
- 
-</div>
-
+<div align="left">
+![Image](https://github.com/user-attachments/assets/6e8969fb-48e7-4d83-bdd1-5cce37f6e7c6)
 <div align="center">
 
 ![Profile views](https://komarev.com/ghpvc/?username=IntoxicatingLust&color=red&style=flat-square) <br> ![visitors](https://visitor-badge.laobi.icu/badge?page_id=IntoxicatingLust.IntoxicatingLust&left_color=red&right_color=black)
@@ -29,6 +23,11 @@ he/him | student dev & artist... maybe?
 Male
 Bisexual + aroace<br>
 INTP
+
+## OCS
+
+
+
 
 ## IF IM IN PT
 *you may find me in libray, bakery* 
