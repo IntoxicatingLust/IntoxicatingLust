@@ -11,7 +11,7 @@
   border-radius:10px;
   padding:15px;
   font-family: 'Courier New', monospace;
-  font-size:14px;"> *Ayee, wsg gng, my name's Shann. I'm fully filipino but I speak english because, I can, and I will.*
+  font-size:14px;"> Ayee, wsg gng, my name's Shann. I'm fully filipino but I speak english because, I can, and I will.
 
 </div>
 
