@@ -3,7 +3,7 @@
  
 ![Image](https://github.com/user-attachments/assets/6e8969fb-48e7-4d83-bdd1-5cce37f6e7c6)
 
-> *Ayee, wsg gng, my name's Shann. I'm fully filipino but I speak english because, I can, and I will.*
+### *Ayee, wsg gng, my name's Shann. I'm fully filipino but I speak english because, I can, and I will.*
 
 <div align="center">
 
