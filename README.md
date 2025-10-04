@@ -26,10 +26,12 @@ INTP
 
 # this thing is just named Shann, ok? almost most of my ocs are named Shann.. uh but yeah.
 > little fun fact about this oc is that he's my main
+
 ![Image](https://github.com/user-attachments/assets/2c5c062e-edea-4cf5-ba4e-315f4b37e053)
 <br>
 <br>
 # and this is my extra oc, just a match w my gang alright?
+
 ![Image](https://github.com/user-attachments/assets/f319d721-f251-44c2-9f7c-e54f76163093)
 
 </div>
