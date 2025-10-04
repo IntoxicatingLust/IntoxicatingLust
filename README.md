@@ -4,8 +4,6 @@
 ![Image](https://github.com/user-attachments/assets/6e8969fb-48e7-4d83-bdd1-5cce37f6e7c6)
 
 <div align="center">
- 
-<img width="652" height="652" alt="Image" src="https://github.com/user-attachments/assets/9e3f777b-8cb1-499b-88b6-fb3c6d4f6765" /> 
 
 # Shann.
 *Just a place where I put things, maybe.*  
