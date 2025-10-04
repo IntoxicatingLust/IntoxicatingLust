@@ -34,14 +34,11 @@ INTP
 
 ---
 
-<img width="652" height="652" alt="Image" src="https://github.com/user-attachments/assets/4062b8a8-0737-47a3-a803-8dd9f179953c" />
-
 💻 Student exploring coding and software development  
 🚀 Currently working on school projects + personal experiments  
 ⚡ Interested in coding, games, and creative projects  
 🌙 Just making things I enjoy — in code & on canvas lmao  
 
-<img width="652" height="652" alt="Image" src="https://github.com/user-attachments/assets/92ca7eb3-b518-455c-97ec-2c265f3f2311" />
 </div>
 
 
