@@ -5,14 +5,9 @@
 
 <div align="center">
 
-# Shann.
-*Just a place where I put things, maybe.*  
+-# supp, welcome to my github, nice to meet you, I guess so.. I'm filipino but I prefer speaking in english, because why not?
 
-“Lust, desire, and code—each written to be consumed.”
-&nbsp;  
-✔️ int is fine aight? (unless dni/dniuf in pt)  
-🚫 dnc: unless we’re friends  
-&nbsp;  
+### INTRODUCTION
 
 🕒 20 → 21 soon
 <br>
