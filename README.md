@@ -48,6 +48,8 @@ INTP
 > you may find me in libray, bakery
 > main map; in crk area, ALNSTG
 
+> If you ever see my skins/ponies I always have my Github showing, unless someone copied !!
+
 </div>
 
 
