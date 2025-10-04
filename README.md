@@ -8,8 +8,6 @@
 <div align="center">
 
 
-</div>
-
 # INTRODUCTION
 
 🕒 20 → 21 soon
