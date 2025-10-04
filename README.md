@@ -38,15 +38,9 @@ INTP
 
 <div align="center">
 ## IF IM IN PT
-*you may find me in libray, bakery* 
-*main map; in crk area, ALNSTG*
-
----
-
-💻 Student exploring coding and software development  
-🚀 Currently working on school projects + personal experiments  
-⚡ Interested in coding, games, and creative projects  
-🌙 Just making things I enjoy — in code & on canvas lmao  
+ 
+> you may find me in libray, bakery
+> main map; in crk area, ALNSTG
 
 </div>
 
