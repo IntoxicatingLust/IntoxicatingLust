@@ -37,6 +37,7 @@ INTP
 </div>
 
 <div align="center">
+ 
 ## IF IM IN PT
  
 > you may find me in libray, bakery
