@@ -19,6 +19,9 @@ Male
 Bisexual + aroace<br>
 INTP
 
+</div>
+
+<div align="Left">
 # OCS
 
 # this thing is just named Shann, ok? almost most of my ocs are named Shann.. uh but yeah.
@@ -29,7 +32,9 @@ INTP
 # and this is my extra oc, just a match w my gang alright?
 ![Image](https://github.com/user-attachments/assets/f319d721-f251-44c2-9f7c-e54f76163093)
 
+</div>
 
+<div align="center">
 ## IF IM IN PT
 *you may find me in libray, bakery* 
 *main map; in crk area, ALNSTG*
