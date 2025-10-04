@@ -5,7 +5,17 @@
 
 <div align="center">
 
-# supp, welcome to my github, nice to meet you, I guess so.. I'm filipino but I prefer speaking in english, because why not?
+<div align="left" style="
+  background-color:#1c1c1c;
+  color:#bfbfbf;
+  border-radius:10px;
+  padding:15px;
+  font-family: 'Courier New', monospace;
+  font-size:14px;">
+  
+  <i>Ayee, wsg gng, my name's Shann. I'm fully filipino but I speak english because, I can, and I will.</i>
+
+</div>
 
 # INTRODUCTION
 
