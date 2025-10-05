@@ -10,6 +10,7 @@
 
 # INTRODUCTION
 
+> the name's Shann, just scroll down bellow smh i ain't typing allat.
 🕒 20 → 21 soon
 <br>
 nov. 2 ok? 
