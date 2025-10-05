@@ -13,6 +13,7 @@
 > the name's Shann, just scroll down bellow smh i ain't typing allat.
 <br>
 🕒 20 → 21 soon
+<br>
 nov. 2 ok? 
 <br>
 he/him | student dev & artist... maybe?  
