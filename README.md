@@ -3,7 +3,7 @@
  
 ![Image](https://github.com/user-attachments/assets/6e8969fb-48e7-4d83-bdd1-5cce37f6e7c6)
 
-### *Ayee, wsg gng, my name's Shann. I'm fully filipino but I speak english because, I can, and I will.*
+### "You are either on my side, by my side, or in my fucking way."
 
 <div align="center">
 
@@ -29,10 +29,7 @@ INTP
 > Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Forsaken ?? maybe.
 
  
-# OCS
-
-> this thing is just named Shann, ok? almost most of my ocs are named Shann.. uh but yeah.
-> little fun fact about this oc is that he's not azure or something vro.. or twotime smh..
+# wtf is ts
 
 ![Image](https://github.com/user-attachments/assets/2c5c062e-edea-4cf5-ba4e-315f4b37e053)
 <br>
