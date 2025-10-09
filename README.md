@@ -29,12 +29,12 @@ INTP
 > Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Forsaken ?? maybe.
 
  
-# wtf is ts
+# Main oc . NOT TWOTIME OKAY STOP
 
 ![Image](https://github.com/user-attachments/assets/2c5c062e-edea-4cf5-ba4e-315f4b37e053)
 <br>
 <br>
-# and this is my extra oc, just a match w my gang alright?
+# Extra oc
 
 ![Image](https://github.com/user-attachments/assets/f319d721-f251-44c2-9f7c-e54f76163093)
 
@@ -47,7 +47,7 @@ INTP
 > you may find me in libray, bakery
 > main map; in crk area, ALNSTG
 
-> If you ever see my skins/ponies I always have my Github showing, unless someone copied !!
+> If you ever see my skins/ponies I always have my Github showing, unless someone copied me.
 
 </div>
 
