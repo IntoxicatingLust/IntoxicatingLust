@@ -26,7 +26,7 @@ INTP
 <div align="Left">
 
 # Fandoms where i am currently in;
-> Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Forsaken ?? maybe.
+> Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Silent Hill f / Silent Hill 2, Forsaken ?? maybe.
 
  
 # Main oc . NOT TWOTIME OKAY STOP
