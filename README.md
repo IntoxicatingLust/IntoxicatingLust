@@ -27,10 +27,10 @@ INTP
 
  
  
-> you may find me in libray(mostly), bakery
+# You may find me in libray(mostly), bakery
 > main map; in crk area, ALNSTG
 
-> If you ever see my skins/ponies I always have my Github showing, unless someone copied me.
+# If you ever see my skins/ponies I always have my Github showing, unless someone copied me.
 
 </div>
 
