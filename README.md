@@ -10,13 +10,7 @@
 
 # INTRODUCTION
 
-> the name's Shann, just scroll down bellow smh i ain't typing allat.
-<br>
-he/him | student dev & artist... maybe?  
-<br> Male
-<br> Bisexual + aroace
-<br>
-INTP
+> My name's Shann, And I'm an artist, if I consider myself as one LMAO, I can draw in both traditional, digital or even paint. I'm technically an INTP, uhh I'll match w your energy anytime, and im canonically weird, so if you feel weird about it just tell me and I'll stop dw.
 
 </div>
 
