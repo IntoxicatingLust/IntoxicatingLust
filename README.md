@@ -13,8 +13,9 @@
 > the name's Shann, just scroll down bellow smh i ain't typing allat.
 <br>
 he/him | student dev & artist... maybe?  
-Male
-Bisexual + aroace<br>
+<br> Male
+<br> Bisexual + aroace
+<br>
 INTP
 
 </div>
