@@ -11,6 +11,7 @@
 . INTRODUCTION
 
 . My name's Shann, And I'm an artist, if I consider myself as one LMAO, I can draw in both traditional, digital or even paint. I'm technically an INTP, uhh I'll match w your energy anytime, and im canonically weird, so if you feel weird about it just tell me and I'll stop dw. My birthday is in nov. 2 so that makes me as a scorpio, I always hang out w my best friends, unless im lonely ok?
+<br> I'm Aroace and bisexual, but maybe I'm into men more? well, It depends.
 
 </div>
 
