@@ -1,4 +1,5 @@
-![Stalker views](https://komarev.com/ghpvc/?username=IntoxicatingLust&color=red&style=flat-square)
+![stalker views count](https://komarev.com/ghpvc/?username=YOURUSERNAME&label=stalker%20views%20count&color=ff0000)
+
 <div align="left">
  
 ![Image](https://github.com/user-attachments/assets/6e8969fb-48e7-4d83-bdd1-5cce37f6e7c6)
