@@ -1,7 +1,9 @@
 ![stalker views count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=stalker%20views%20count&color=ff0000)
 
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3174vbnlzenqshrjfcmumfhxe2ie&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
- 
+<a href="https://github.com/kittinan/spotify-github-profile">
+  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3174vbnlzenqshrjfcmumfhxe2ie&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false" alt="Spotify Profile">
+</a>
+
 <div align="left">
  
 ![Image](https://github.com/user-attachments/assets/6e8969fb-48e7-4d83-bdd1-5cce37f6e7c6)
