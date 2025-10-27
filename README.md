@@ -1,8 +1,8 @@
 ![stalker views count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=stalker%20views%20count&color=ff0000)
 
-<div align="left">
-
  [![Spotify](https://spotify-github-profile.vercel.app/api/view?uid=3174vbnlzenqshrjfcmumfhxe2ie&cover_image=false&theme=default&show_offline=true&background_color=0d0d0d&bar_color=ff0000&bar_color_cover=true)](https://spotify-github-profile.vercel.app/api/view?uid=3174vbnlzenqshrjfcmumfhxe2ie&redirect=true)
+ 
+<div align="left">
  
 ![Image](https://github.com/user-attachments/assets/6e8969fb-48e7-4d83-bdd1-5cce37f6e7c6)
 
