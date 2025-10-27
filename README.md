@@ -3,12 +3,6 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3174vbnlzenqshrjfcmumfhxe2ie&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 </a>
 
-<p align="center" style="color:#ffb6c1; font-family: 'Courier New'; font-size: 16px;">
-  <marquee behavior="scroll" direction="left" scrollamount="8">
-    I ♡ you. I ♡ you. I ♡ you. I ♡ you. I ♡ you. I ♡ you.
-  </marquee>
-</p>
-
 <div align="left">
 
 ![Image](https://github.com/user-attachments/assets/6e8969fb-48e7-4d83-bdd1-5cce37f6e7c6)
