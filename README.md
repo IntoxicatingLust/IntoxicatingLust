@@ -30,7 +30,7 @@
 . Fandoms where i am currently in;
 > Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Silent Hill f / Silent Hill 2, DBD / Dead By Daylight, Forsaken ?? maybe.
 
- ![Image](https://github.com/user-attachments/assets/3a4acdad-d9b3-45e0-9461-98f1ee361ed1)
+ ![Image](https://github.com/user-attachments/assets/fbabad7f-4e9a-43dc-9572-3f9d19cf9159)
  
 . You may find me in 
 > library(mostly), bakery
