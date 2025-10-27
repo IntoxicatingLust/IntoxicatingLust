@@ -1,4 +1,4 @@
-![stalker views count](https://komarev.com/ghpvc/?username=YOURUSERNAME&label=stalker%20views%20count&color=ff0000)
+![stalker views count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=stalker%20views%20count&color=ff0000)
 
 <div align="left">
  
