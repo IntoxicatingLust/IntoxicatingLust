@@ -1,7 +1,6 @@
 ![stalker views count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=stalker%20views%20count&color=ff0000)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3174vbnlzenqshrjfcmumfhxe2ie&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3174vbnlzenqshrjfcmumfhxe2ie&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 </a>
 
 <div align="left">
