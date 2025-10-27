@@ -36,7 +36,7 @@
 > library(mostly), bakery
 > main map; in crk area, ALNSTG
 
-. If you ever see my skins/ponies I always have my Github showing, unless someone copied me.
+. If you ever see my skins/ponies I always have my Github showing, unless someone copied me. ![Image](https://github.com/user-attachments/assets/011e0dca-4913-4ced-aff1-f3d95f70dd17)
 
 </div>
 
