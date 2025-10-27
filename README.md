@@ -8,9 +8,9 @@
 ![Image](https://github.com/user-attachments/assets/6e8969fb-48e7-4d83-bdd1-5cce37f6e7c6)
 
 ### "You are either on my side, by my side, or in my fucking way."
+![Image](https://github.com/user-attachments/assets/5238952e-5b05-4203-82c9-59ebd9a4ee4f)
 
-
-. INTRODUCTION
+. INTRODUCTION BELOW !!
 
 ![Image](https://github.com/user-attachments/assets/d75a34ed-6a07-4089-a857-686fd6ff7fb1)
 
@@ -21,12 +21,16 @@
 
 <div align="Left">
 
-. special interest(s)
+. SPECIAL INTEREST(S) BELOW
+
+![Image](https://github.com/user-attachments/assets/f5c83257-958f-4add-a990-25a69769a388)
+
+. I like MLBB, ALNST, AND UHH like just read what fandoms I'm in they're basically the same.
 
 . Fandoms where i am currently in;
 > Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Silent Hill f / Silent Hill 2, DBD / Dead By Daylight, Forsaken ?? maybe.
 
- 
+ ![Image](https://github.com/user-attachments/assets/3a4acdad-d9b3-45e0-9461-98f1ee361ed1)
  
 . You may find me in 
 > library(mostly), bakery
