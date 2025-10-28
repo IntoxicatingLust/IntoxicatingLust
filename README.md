@@ -38,13 +38,16 @@
 
  ![Image](https://github.com/user-attachments/assets/fbabad7f-4e9a-43dc-9572-3f9d19cf9159)
 
- . ok bye im done yapping I dont know what to add
  
 . You may find me in 
 > library(mostly), bakery
 > main map; in crk area, ALNSTG
 
-. If you ever see my skins/ponies I always have my Github showing, unless someone copied me. ![Image](https://github.com/user-attachments/assets/011e0dca-4913-4ced-aff1-f3d95f70dd17)
+. If you ever see my skins/ponies I always have my Github showing, unless someone copied me. 
+
+![Image](https://github.com/user-attachments/assets/011e0dca-4913-4ced-aff1-f3d95f70dd17)
+
+ . ok bye im done yapping I dont know what to add
 
 </div>
 
