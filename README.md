@@ -15,7 +15,8 @@
 ![Image](https://github.com/user-attachments/assets/d75a34ed-6a07-4089-a857-686fd6ff7fb1)
 
 . My name's Shann, And I'm an artist, if I consider myself as one LMAO, I can draw in both traditional, digital or even paint. I'm technically an INTP, uhh I'll match w your energy anytime, and im canonically weird, so if you feel weird about it just tell me and I'll stop dw. My birthday is in nov. 2 so that makes me as a scorpio, I always hang out w my best friends, unless im lonely ok?
-<br> I'm Aroace and bisexual, but maybe I'm into men more? well, It depends. I have like mood swings sometimes, it's either im hyper, by next I'm suddenly serious and talking about serious stuff, then joking around, and I always change topics to keep convos going to avoid awkwardness. I'm a multishipper, antishipper, canon shipper, selfship.
+<br> I'm Aroace and bisexual, but maybe I'm into men more? well, It depends. I have like mood swings sometimes, it's either im hyper, by next I'm suddenly serious and talking about serious stuff, then joking around, and I always change topics to keep convos going to avoid awkwardness. I'm a multishipper, antishipper, canon shipper, selfship. 
+- dont forget to follow my moots ok?
 
 </div>
 
@@ -31,6 +32,8 @@
 > Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Silent Hill f / Silent Hill 2, DBD / Dead By Daylight, Forsaken ?? maybe.
 
  ![Image](https://github.com/user-attachments/assets/fbabad7f-4e9a-43dc-9572-3f9d19cf9159)
+
+ . ok bye im done yapping I dont know what to add
  
 . You may find me in 
 > library(mostly), bakery
