@@ -9,6 +9,8 @@
 
 ### "You are either on my side, by my side, or in my fucking way."
 
+![Image](https://github.com/user-attachments/assets/5238952e-5b05-4203-82c9-59ebd9a4ee4f)
+
 . DNI IF. . .
 - darkshippers, proshippers, people who don't respect other's opinions, disrespectful, ragebaiter(I wouldn't care but wtvr), arrogant people, etc.
 - If i have a DNI/DNIUF, you cant int or even if you do I would be busy/semi-afk.
@@ -50,4 +52,3 @@
 
 </div>
 
-![Image](https://github.com/user-attachments/assets/5238952e-5b05-4203-82c9-59ebd9a4ee4f)
