@@ -10,6 +10,10 @@
 ### "You are either on my side, by my side, or in my fucking way."
 ![Image](https://github.com/user-attachments/assets/5238952e-5b05-4203-82c9-59ebd9a4ee4f)
 
+. DNI IF. . .
+- darkshippers, proshippers, people who don't respect other's opinions, disrespectful, ragebaiter(I wouldn't care but wtvr), arrogant people, etc.
+- If i have a DNI/DNIUF, you cant int or even if you do I would be busy/semi-afk.
+
 . INTRODUCTION BELOW !!
 
 ![Image](https://github.com/user-attachments/assets/d75a34ed-6a07-4089-a857-686fd6ff7fb1)
@@ -26,7 +30,8 @@
 
 ![Image](https://github.com/user-attachments/assets/f5c83257-958f-4add-a990-25a69769a388)
 
-. I like MLBB, ALNST, AND UHH like just read what fandoms I'm in they're basically the same.
+. I like MLBB, ALNST, AND UHH like just read what fandoms I'm in they're basically the same. 
+. Also currently planning to build/develop a game someday if I have motivation, or maybe if I know how soon, but yeah.
 
 . Fandoms where i am currently in;
 > Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Silent Hill f / Silent Hill 2, DBD / Dead By Daylight, Forsaken ?? maybe.
