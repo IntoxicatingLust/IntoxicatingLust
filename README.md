@@ -38,7 +38,7 @@
 . Also currently planning to build/develop a game someday if I have motivation, or maybe if I know how soon, but yeah.
 
 . Fandoms where i am currently in;
-> Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Silent Hill f / Silent Hill 2, DBD / Dead By Daylight, Forsaken ?? maybe.
+> Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Silent Hill f / Silent Hill 2, DBD / Dead By Daylight, Forsaken, Skullgirls.
 
  ![Image](https://github.com/user-attachments/assets/fbabad7f-4e9a-43dc-9572-3f9d19cf9159)
 
