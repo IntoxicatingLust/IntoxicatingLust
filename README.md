@@ -1,6 +1,5 @@
 ![stalker views count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=stalker%20views%20count&color=ff0000)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3174vbnlzenqshrjfcmumfhxe2ie&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 </a>
 
 <div align="left">
@@ -8,6 +7,8 @@
 ![Image](https://github.com/user-attachments/assets/6e8969fb-48e7-4d83-bdd1-5cce37f6e7c6)
 
 ### "You are either on my side, by my side, or in my fucking way."
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3174vbnlzenqshrjfcmumfhxe2ie&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![Image](https://github.com/user-attachments/assets/ae5b202b-181a-4482-9ba5-3501bc46e4f2)
 
