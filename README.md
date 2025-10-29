@@ -4,7 +4,7 @@
 
 <div align="left">
 
-![Image](https://github.com/user-attachments/assets/6e8969fb-48e7-4d83-bdd1-5cce37f6e7c6)
+<img width="1000" height="1129" alt="Image" src="https://github.com/user-attachments/assets/0567d70b-75a9-4dea-b200-31cfb589f33a" />
 
 ### "You are either on my side, by my side, or in my fucking way."
 
