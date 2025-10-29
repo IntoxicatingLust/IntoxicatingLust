@@ -9,7 +9,7 @@
 
 ### "You are either on my side, by my side, or in my fucking way."
 
-![Image](https://github.com/user-attachments/assets/5238952e-5b05-4203-82c9-59ebd9a4ee4f)
+![Image](https://github.com/user-attachments/assets/ae5b202b-181a-4482-9ba5-3501bc46e4f2)
 
 . DNI IF. . .
 - darkshippers, proshippers, people who don't respect other's opinions, disrespectful, ragebaiter(I wouldn't care but wtvr), arrogant people, etc.
