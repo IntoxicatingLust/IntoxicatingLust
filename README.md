@@ -52,6 +52,8 @@
 ![Image](https://github.com/user-attachments/assets/011e0dca-4913-4ced-aff1-f3d95f70dd17)
 
  . ok bye im done yapping I dont know what to add
+ 
+![Image](https://github.com/user-attachments/assets/ae5b202b-181a-4482-9ba5-3501bc46e4f2)
 
 </div>
 
