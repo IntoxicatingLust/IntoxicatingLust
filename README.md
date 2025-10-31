@@ -18,7 +18,7 @@
 - darkshippers, proshippers, people who don't respect other's opinions, disrespectful, ragebaiter(I wouldn't care but wtvr), arrogant people, etc.
 - If i have a DNI/DNIUF, you cant int or even if you do I would be busy/semi-afk.
 
-![Image](https://github.com/user-attachments/assets/99254f67-475d-4bd9-a621-a1bbeb318650)
+![Image](https://github.com/user-attachments/assets/468dceac-7ef0-446a-a829-334bd117c0e2)
 
 
 . INTRODUCTION BELOW !!
