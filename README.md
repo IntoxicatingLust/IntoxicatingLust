@@ -56,7 +56,7 @@
 
  . ok bye im done yapping I dont know what to add
  
-![Image](https://github.com/user-attachments/assets/ae5b202b-181a-4482-9ba5-3501bc46e4f2)
+![Image](https://github.com/user-attachments/assets/3cab9dd5-3e63-4459-81fb-a55160a2b58b)
 
 </div>
 
