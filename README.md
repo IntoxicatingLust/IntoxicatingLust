@@ -52,8 +52,6 @@
 
 . If you ever see my skins/ponies I always have my Github showing, unless someone copied me. 
 
-![Image](https://github.com/user-attachments/assets/011e0dca-4913-4ced-aff1-f3d95f70dd17)
-
  . ok bye im done yapping I dont know what to add
  
 ![Image](https://github.com/user-attachments/assets/3cab9dd5-3e63-4459-81fb-a55160a2b58b)
