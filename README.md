@@ -41,14 +41,14 @@
 . Also currently planning to build/develop a game someday if I have motivation, or maybe if I know how soon, but yeah.
 
 . Fandoms where i am currently in;
-> Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Silent Hill f / Silent Hill 2, DBD / Dead By Daylight, Forsaken, Skullgirls.
+> Crk, FNF, MLBB, ALNST, Vocaloid . . Colorful Stage, DP, Silent Hill f / Silent Hill 2, DBD / Dead By Daylight, Forsaken, Skullgirls, Genshin Impact.
 
  ![Image](https://github.com/user-attachments/assets/fbabad7f-4e9a-43dc-9572-3f9d19cf9159)
 
  
 . You may find me in 
-> library(mostly), bakery
-> main map; in crk area, ALNSTG
+> library, bakery (mostly between the two)
+> main map; in crk area, ALNSTG/GI
 
 . If you ever see my skins/ponies I always have my Github showing, unless someone copied me. 
 
