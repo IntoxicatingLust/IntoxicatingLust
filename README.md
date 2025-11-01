@@ -23,7 +23,7 @@
 
 . INTRODUCTION BELOW !!
 
-<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/7475cc83-0729-48cd-8606-258b6dbfcfcd" />
+![Image](https://github.com/user-attachments/assets/bc3fd991-31a7-47c4-b745-ee0666da689d)
 
 . My name's Shann, And I'm an artist, if I consider myself as one LMAO, I can draw in both traditional, digital or even paint. I'm technically an INTP, uhh I'll match w your energy anytime, and im canonically weird, so if you feel weird about it just tell me and I'll stop dw. My birthday is in nov. 2 so that makes me as a scorpio, I always hang out w my best friends, unless im lonely ok?
 <br> I'm Aroace and bisexual, but maybe I'm into men more? well, It depends. I have like mood swings sometimes, it's either im hyper, by next I'm suddenly serious and talking about serious stuff, then joking around, and I always change topics to keep convos going to avoid awkwardness. I'm a multishipper, antishipper, canon shipper, selfship. 
