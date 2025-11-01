@@ -12,7 +12,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3174vbnlzenqshrjfcmumfhxe2ie&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
-![Image](https://github.com/user-attachments/assets/ae5b202b-181a-4482-9ba5-3501bc46e4f2)
+<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/7475cc83-0729-48cd-8606-258b6dbfcfcd" />
 
 . DNI IF. . .
 - darkshippers, proshippers, people who don't respect other's opinions, disrespectful, ragebaiter(I wouldn't care but wtvr), arrogant people, etc.
