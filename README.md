@@ -6,5 +6,6 @@
  
 <img width="735" height="560" alt="Image" src="https://github.com/user-attachments/assets/a31136e2-734c-4c6b-a21d-b0feab024264" />
 
+<i> "You are either on my side, by my side, or in my fucking way." 
 
 <img width="734" height="168" alt="Image" src="https://github.com/user-attachments/assets/c3e1b202-87a3-41c5-b4a6-ae63c29ec9a2" />
