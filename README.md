@@ -35,4 +35,4 @@ check these out gang for info or scroll down .
 <i>> library, bakery (mostly between the two)</i>
 <i>> main map; in crk area, ALNSTG/GI</i>
 
-<img width="734" height="168" alt="Image" src="https://github.com/user-attachments/assets/c3e1b202-87a3-41c5-b4a6-ae63c29ec9a2" />
+<img width="730" height="107" alt="Image" src="https://github.com/user-attachments/assets/2d77a77f-d2bf-42c4-96ac-6d7c32836b3f" />
