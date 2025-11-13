@@ -8,7 +8,7 @@
 
 <i> "You are either on my side, by my side, or in my fucking way." 
  
-── [`pronouns.page`](https://en.pronouns.page/@Shann_)  [Spotify](https://open.spotify.com/user/3174vbnlzenqshrjfcmumfhxe2ie) . [Strawpage](https://derivedlust.straw.page/) . [Patreon](https://www.patreon.com/c/LongingEtherealDesires) . [Carrd](https://intoxicatinglust.carrd.co/) . check these out for info or scroll down 
+── [`Pronouns.page`](https://en.pronouns.page/@Shann_)  [`Spotify`](https://open.spotify.com/user/3174vbnlzenqshrjfcmumfhxe2ie) . [`Strawpage`](https://derivedlust.straw.page/) . [`Patreon`](https://www.patreon.com/c/LongingEtherealDesires) . [`Carrd`](https://intoxicatinglust.carrd.co/) . check these out for info or scroll down 
 
 <b><i>. DNI IF. . </i></b>
 - <i>darkshippers, proshippers, people who don't respect other's opinions, disrespectful, ragebaiter(I wouldn't care but wtvr), arrogant people, etc.</i>
