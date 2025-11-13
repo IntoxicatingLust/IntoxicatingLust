@@ -33,4 +33,11 @@
 <i>> library, bakery (mostly between the two)</i>
 <i>> main map; in crk area, ALNSTG/GI</i>
 
+<i>. If you ever see my skins/ponies I always have my Github showing, unless someone copied me.</i>
+
+ <i>. ok bye im done yapping I dont know what to add</i>
+ 
+ 
+![Image](https://github.com/user-attachments/assets/3cab9dd5-3e63-4459-81fb-a55160a2b58b)
+
 <img width="730" height="107" alt="Image" src="https://github.com/user-attachments/assets/2d77a77f-d2bf-42c4-96ac-6d7c32836b3f" />
