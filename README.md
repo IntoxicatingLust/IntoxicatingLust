@@ -7,11 +7,9 @@
 <img width="735" height="560" alt="Image" src="https://github.com/user-attachments/assets/04fb7197-397a-4e5c-a272-adb3696d69b0" />
 
 <i> "You are either on my side, by my side, or in my fucking way." 
-
-check these out gang for info or scroll down . 
-
-[Spotify](https://open.spotify.com/user/3174vbnlzenqshrjfcmumfhxe2ie) . [Strawpage](https://derivedlust.straw.page/) . [Patreon](https://www.patreon.com/c/LongingEtherealDesires) . [Carrd](https://intoxicatinglust.carrd.co/)
  
+[Spotify](https://open.spotify.com/user/3174vbnlzenqshrjfcmumfhxe2ie) . [Strawpage](https://derivedlust.straw.page/) . [Patreon](https://www.patreon.com/c/LongingEtherealDesires) . [Carrd](https://intoxicatinglust.carrd.co/) . check these out for info or scroll down 
+
 <b><i>. DNI IF. . </i></b>
 - <i>darkshippers, proshippers, people who don't respect other's opinions, disrespectful, ragebaiter(I wouldn't care but wtvr), arrogant people, etc.</i>
 - <i>If i have a DNI/DNIUF, you cant int or even if you do I would be busy/semi-afk.</i>
