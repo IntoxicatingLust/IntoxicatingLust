@@ -4,7 +4,7 @@
 
  <i> free to int or c+h idm, unless i have DNI/DNIUF or I'm with my friends.</i>
  
-<img width="735" height="560" alt="Image" src="https://github.com/user-attachments/assets/04fb7197-397a-4e5c-a272-adb3696d69b0" />
+<img width="735" height="560" alt="Image" src="https://github.com/user-attachments/assets/1357df79-0937-4bce-83f9-bb7b12969422" />
 
 <i> "You are either on my side, by my side, or in my fucking way." 
  
