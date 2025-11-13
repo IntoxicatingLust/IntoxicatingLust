@@ -4,7 +4,7 @@
 
  <i> free to int or c+h idm, unless i have DNI/DNIUF or I'm with my friends.</i>
  
- ![Image](https://github.com/user-attachments/assets/d8ab35ab-eaff-4a9e-a4d3-b84c48d8be8e)
+<img width="735" height="560" alt="Image" src="https://github.com/user-attachments/assets/a31136e2-734c-4c6b-a21d-b0feab024264" />
 
 
 <img width="734" height="168" alt="Image" src="https://github.com/user-attachments/assets/c3e1b202-87a3-41c5-b4a6-ae63c29ec9a2" />
