@@ -1,6 +1,6 @@
 <img width="730" height="107" alt="Image" src="https://github.com/user-attachments/assets/2d77a77f-d2bf-42c4-96ac-6d7c32836b3f" />
 
-![gaze count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=gaze%20count&color=ff0000&style=flat-square)
+![gaze count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=gaze%20count&color=007fff&style=flat-square)
 
  <i> free to int or c+h idm, unless i have DNI/DNIUF or I'm with my friends.</i>
  
