@@ -8,4 +8,6 @@
 
 <i> "You are either on my side, by my side, or in my fucking way." 
 
+[Spotify](https://open.spotify.com/user/3174vbnlzenqshrjfcmumfhxe2ie) ✧ [Strawpage](https://derivedlust.straw.page/) ✧ [Patreon](https://www.patreon.com/c/LongingEtherealDesires) ✧ [Carrd](https://intoxicatinglust.carrd.co/)
+
 <img width="734" height="168" alt="Image" src="https://github.com/user-attachments/assets/c3e1b202-87a3-41c5-b4a6-ae63c29ec9a2" />
