@@ -2,7 +2,7 @@
 
 ![gaze count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=gaze%20count&color=007fff&style=flat-square)
 
- <i> free to int or c+h idm, unless i have DNI/DNIUF </i>
+ <i style="color:#436578;">free to int or c+h idm, unless i have DNI/DNIUF</i>
  
 <img width="735" height="560" alt="Image" src="https://github.com/user-attachments/assets/312073bb-8276-46fb-9f87-9c098188602d" />
 
