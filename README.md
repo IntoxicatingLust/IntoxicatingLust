@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![gaze count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=gaze%20count&color=F4F0FF&style=flat-square)
+![gaze count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=gaze%20count&color=241547&style=flat-square)
 
 </div>
 
