@@ -7,7 +7,7 @@
 </div>
 
 <font color="#241547" style="font-family: 'Montez', cursive;">
-  <i>Feel free to int or c+h idm, unless i have DNI/DNIUF</i>
+  Feel free to int or c+h idm, unless i have DNI/DNIUF
 </font>
 
 <div align="center">
