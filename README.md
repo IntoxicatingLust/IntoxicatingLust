@@ -8,11 +8,7 @@
 
 <div align="center">
 
-<font color="#30003A">━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━</font>
-
-`*` <font color="#241547"><i>Feel free to int or c+h idm, unless i have DNI/DNIUF</i></font> `*`
-
-<font color="#241547">━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━</font>
+`*` <font color="#241547">Feel free to int or c+h idm, unless i have DNI/DNIUF</font> `*`
 
 </div>
  
