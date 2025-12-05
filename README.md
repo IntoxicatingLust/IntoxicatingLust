@@ -8,7 +8,8 @@
  
 <img width="1000" height="798" alt="Image" src="https://github.com/user-attachments/assets/1ed711fc-54db-4156-a280-b5df137a48eb" />
 
-" $\color{rgb(20,22,46)}{\textsf{Y}}$
+$\color{rgb(20,22,46)}{\textsf{"}}$
+$\color{rgb(20,22,46)}{\textsf{Y}}$
 $\color{rgb(40,35,80)}{\textsf{o}}$
 $\color{rgb(70,45,110)}{\textsf{u}}$
 $\color{rgb(110,70,150)}{\textsf{ }}$
@@ -69,7 +70,8 @@ $\color{rgb(130,95,180)}{\textsf{ }}$
 $\color{rgb(160,50,160)}{\textsf{w}}$
 $\color{rgb(190,60,150)}{\textsf{a}}$
 $\color{rgb(130,95,180)}{\textsf{y}}$
-$\color{rgb(110,70,150)}{\textsf{.}}$ "
+$\color{rgb(110,70,150)}{\textsf{.}}$
+$\color{rgb(110,70,150)}{\textsf{"}}$
 
 ── [`Pronouns.page`](https://en.pronouns.page/@Shann_) ⚡︎ [`Spotify`](https://open.spotify.com/user/3174vbnlzenqshrjfcmumfhxe2ie) ⚡︎ [`Strawpage`](https://derivedlust.straw.page/) ⚡︎ [`Patreon`](https://www.patreon.com/c/LongingEtherealDesires) ⚡︎ [`Carrd`](https://intoxicatinglust.carrd.co/) . $\color{rgb(190,60,150)}{\textsf{c}}$
 $\color{rgb(170,70,160)}{\textsf{h}}$
