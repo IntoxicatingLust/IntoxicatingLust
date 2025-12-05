@@ -71,7 +71,31 @@ $\color{rgb(190,60,150)}{\textsf{a}}$
 $\color{rgb(130,95,180)}{\textsf{y}}$
 $\color{rgb(110,70,150)}{\textsf{.}}$ "
 
-── [`Pronouns.page`](https://en.pronouns.page/@Shann_) ⚡︎ [`Spotify`](https://open.spotify.com/user/3174vbnlzenqshrjfcmumfhxe2ie) ⚡︎ [`Strawpage`](https://derivedlust.straw.page/) ⚡︎ [`Patreon`](https://www.patreon.com/c/LongingEtherealDesires) ⚡︎ [`Carrd`](https://intoxicatinglust.carrd.co/) . check these out for info.
+── [`Pronouns.page`](https://en.pronouns.page/@Shann_) ⚡︎ [`Spotify`](https://open.spotify.com/user/3174vbnlzenqshrjfcmumfhxe2ie) ⚡︎ [`Strawpage`](https://derivedlust.straw.page/) ⚡︎ [`Patreon`](https://www.patreon.com/c/LongingEtherealDesires) ⚡︎ [`Carrd`](https://intoxicatinglust.carrd.co/) . $\color{rgb(190,60,150)}{\textsf{c}}$
+$\color{rgb(170,70,160)}{\textsf{h}}$
+$\color{rgb(150,80,170)}{\textsf{e}}$
+$\color{rgb(130,95,180)}{\textsf{c}}$
+$\color{rgb(110,110,190)}{\textsf{k}}$
+$\color{rgb(90,130,200)}{\textsf{ }}$
+$\color{rgb(120,100,185)}{\textsf{t}}$
+$\color{rgb(150,80,170)}{\textsf{h}}$
+$\color{rgb(170,70,160)}{\textsf{e}}$
+$\color{rgb(190,60,150)}{\textsf{s}}$
+$\color{rgb(170,70,160)}{\textsf{e}}$
+$\color{rgb(150,80,170)}{\textsf{ }}$
+$\color{rgb(130,95,180)}{\textsf{o}}$
+$\color{rgb(110,110,190)}{\textsf{u}}$
+$\color{rgb(90,130,200)}{\textsf{t}}$
+$\color{rgb(70,150,210)}{\textsf{ }}$
+$\color{rgb(90,130,200)}{\textsf{f}}$
+$\color{rgb(110,110,190)}{\textsf{o}}$
+$\color{rgb(130,95,180)}{\textsf{r}}$
+$\color{rgb(150,80,170)}{\textsf{ }}$
+$\color{rgb(170,70,160)}{\textsf{i}}$
+$\color{rgb(190,60,150)}{\textsf{n}}$
+$\color{rgb(170,70,160)}{\textsf{f}}$
+$\color{rgb(150,80,170)}{\textsf{o}}$
+$\color{rgb(130,95,180)}{\textsf{.}}$
 
 </div>
 
