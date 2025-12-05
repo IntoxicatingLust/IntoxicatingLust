@@ -8,7 +8,7 @@
 
 <div align="center">
 
-`*` <font color="#241547">Feel free to int or c+h idm, unless i have DNI/DNIUF</font> `*`
+`*`<font color="#241547">Feel free to int or c+h idm, unless i have DNI/DNIUF</font>`*`
 
 </div>
  
