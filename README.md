@@ -6,13 +6,9 @@
 
 </div>
 
-<font color="#241547" style="font-family: 'Montez', cursive;">
-  Feel free to int or c+h idm, unless i have DNI/DNIUF
-</font>
-
 <div align="center">
 
-<font color="#241547">━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━</font>
+<font color="#30003A">━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━</font>
 
 `*` <font color="#241547"><i>Feel free to int or c+h idm, unless i have DNI/DNIUF</i></font> `*`
 
