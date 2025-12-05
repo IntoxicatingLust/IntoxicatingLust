@@ -73,7 +73,7 @@ $\color{rgb(130,95,180)}{\textsf{y}}$
 $\color{rgb(110,70,150)}{\textsf{.}}$
 $\color{rgb(110,70,150)}{\textsf{"}}$
 
-$\color{rgb(190,60,150)}{\textsf{──}}$ [`Pronouns.page`](https://en.pronouns.page/@Shann_) ⚡︎ [`Spotify`](https://open.spotify.com/user/3174vbnlzenqshrjfcmumfhxe2ie) ⚡︎ [`Strawpage`](https://derivedlust.straw.page/) ⚡︎ [`Patreon`](https://www.patreon.com/c/LongingEtherealDesires) ⚡︎ [`Carrd`](https://intoxicatinglust.carrd.co/) $\color{rgb(190,60,150)}{\textsf{.}}$ $\color{rgb(190,60,150)}{\textsf{c}}$
+$\color{rgb(190,60,150)}{\textsf{──}}$ [`Pronouns.page`](https://en.pronouns.page/@Shann_) ⚡︎ [`Spotify`](https://open.spotify.com/user/3174vbnlzenqshrjfcmumfhxe2ie) ⚡︎ [`Strawpage`](https://derivedlust.straw.page/) ⚡︎ [`Patreon`](https://www.patreon.com/c/LongingEtherealDesires) ⚡︎ [`Carrd`](https://intoxicatinglust.carrd.co/) $\color{rgb(60,180,190)}{\textsf{.}}$ $\color{rgb(190,60,150)}{\textsf{c}}$
 $\color{rgb(170,70,160)}{\textsf{h}}$
 $\color{rgb(150,80,170)}{\textsf{e}}$
 $\color{rgb(130,95,180)}{\textsf{c}}$
