@@ -1,4 +1,4 @@
-<img width="730" height="107" alt="Image" src="https://github.com/user-attachments/assets/2d77a77f-d2bf-42c4-96ac-6d7c32836b3f" />
+<img width="1055" height="246" alt="Image" src="https://github.com/user-attachments/assets/6e7bfacd-9d59-4fd6-b2fc-34bf8f4cc109" />
 
 
 <font color="#436578"><i>free to int or c+h idm, unless i have DNI/DNIUF</i></font>
@@ -11,3 +11,5 @@
 
 
 ── [`Pronouns.page`](https://en.pronouns.page/@Shann_) ⚡︎ [`Spotify`](https://open.spotify.com/user/3174vbnlzenqshrjfcmumfhxe2ie) ⚡︎ [`Strawpage`](https://derivedlust.straw.page/) ⚡︎ [`Patreon`](https://www.patreon.com/c/LongingEtherealDesires) ⚡︎ [`Carrd`](https://intoxicatinglust.carrd.co/) . check these out for info.
+
+<img width="1055" height="246" alt="Image" src="https://github.com/user-attachments/assets/6e7bfacd-9d59-4fd6-b2fc-34bf8f4cc109" />
