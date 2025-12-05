@@ -6,7 +6,9 @@
 
 </div>
 
-<font color="#436578"><i>free to int or c+h idm, unless i have DNI/DNIUF</i></font>
+<font color="#241547" style="font-family: 'Montez', cursive;">
+  <i>Feel free to int or c+h idm, unless i have DNI/DNIUF</i>
+</font>
  
 <img width="1000" height="798" alt="Image" src="https://github.com/user-attachments/assets/1ed711fc-54db-4156-a280-b5df137a48eb" />
 
