@@ -5,8 +5,6 @@
 ![gaze count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=gaze%20count&color=241547&style=flat-square)
 
 ゛`Feel free to int or c+h idm, unless i have DNI/DNIUF` ˶
- 
-[Color My Tree](https://colormytree.me/2025/01KBW6XDE656VVG9V16ZQ4A8VP)
 
 <img width="1000" height="798" alt="Image" src="https://github.com/user-attachments/assets/1ed711fc-54db-4156-a280-b5df137a48eb" />
 
