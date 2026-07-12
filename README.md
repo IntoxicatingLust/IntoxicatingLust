@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![gaze count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=gaze%20count&color=241547&style=flat-square)
+![ count](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=count%20&color=241547&style=flat-square)
 
 ゛`Feel free to int or c+h idm, unless i have DNI/DNIUF` ˶
 
